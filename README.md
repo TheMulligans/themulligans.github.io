@@ -1,2 +1,1 @@
-# themulligans.github.io
-Mad Marc &amp; The Mulligans
+# Mad Marc &amp; The Mulligans
